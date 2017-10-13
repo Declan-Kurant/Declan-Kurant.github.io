@@ -1,1 +1,0 @@
-# Declan-Kurant.github.io
